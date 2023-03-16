@@ -1,4 +1,4 @@
-### Hi there :blush:
+### Hi there!
 My name is Naureen Hossain.
 
 <!--
